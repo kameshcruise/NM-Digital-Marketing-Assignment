@@ -5,7 +5,7 @@ Cruise's Styles Blog - Assignment 1
 
 Cruise's Style Brand Buisness Page and Facebook post - Assignment 2
 
-[Your link Here](https://www.facebook.com/100068629599344/posts/pfbid0wuA5bQSY1TUgo2fDy43RKvSim9maWTqcYdQN1hj8qq5U4mhdEdDRehPCWKrf26gEl/?app=fbl)
+[Your link Here](https://www.facebook.com/profile.php?id=100068629599344)
 
 Cruise's Styles Social Media Advertisement Poster - Assignment 3
 
